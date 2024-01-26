@@ -1,1 +1,1 @@
-# this was made just for fun :-)
+# this was fun just for made :-)
